@@ -1,1 +1,1 @@
-# MixItUp1
+# MixitUp1
